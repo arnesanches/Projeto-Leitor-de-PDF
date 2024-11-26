@@ -1,0 +1,1 @@
+It seems that the text provided does not contain any tables. It consists of definitions and explanations related to financial terms and metrics. If you have a specific format or structure in mind for tables, please provide that, and I can assist you further.
